@@ -1,0 +1,2 @@
+# ramseyportfolio
+ remziozturkportfoliotasarimi
